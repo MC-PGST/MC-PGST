@@ -1,11 +1,11 @@
 
 Shameful plagiarizing developers Galen Huang,GT86,GsTio86
 來自台灣的 MC-PGST 伺服器嚴重侵犯任天堂與微軟與網易公司
-GT86(GALEN HUANG)/PurelyCHI(許浚偉)不尊重著作權侵犯知識產權與版權
+GT86(GALEN HUANG)/PurelyCHI(許峻瑋)不尊重著作權侵犯知識產權與版權
 嘴上説的著作權,實際上在肆無忌憚的侵權?
 MC-PGST非法使用寶可夢内容元素進行盈利,數額巨大已固定證據.
 
-負責人GT86/GsTio86(GALEN HUANG)/PurelyCHI(許浚偉)肆意踐踏法律法規無視著作權.
+負責人GT86/GsTio86(GALEN HUANG)/PurelyCHI(許峻瑋)肆意踐踏法律法規無視著作權.
 
 知識產權與版權問題何去何從?
 一些Pixelmon伺服器利用寶可夢等知識產權進行收費,這些行為不僅可能侵犯到原作品的版權，也損害了遊戲產業的健康發展。這些伺服器為了短期利益,忽視了版權保護的重要性,應當受到法律的嚴格制裁.我們呼籲所有遊戲開發者和玩家共同維護知識產權，推動遊戲產業走向更加健康和可持續的發展道路.
@@ -18,7 +18,7 @@ MC-PGST非法使用寶可夢内容元素進行盈利,數額巨大已固定證據
 
 
 SEO
-PGST,MC-PGST,Galen Huang,GT86,GsTio86,Pixelmon,許浚偉,PurelyCHI,MC-PGST.TW,任天堂,寶可夢,神奇寶貝,知識產權,台湾,台灣,Taiwan
+PGST,MC-PGST,Galen Huang,GT86,GsTio86,Pixelmon,許峻瑋,PurelyCHI,MC-PGST.TW,任天堂,寶可夢,神奇寶貝,知識產權,台湾,台灣,Taiwan
 Shameful plagiarizing developers Galen Huang,GT86
 
 
@@ -47,11 +47,11 @@ Shameful plagiarizing developers Galen Huang,GT86
 
 Les développeurs honteux de plagiat Galen Huang, GT86, GsTio86
 Le serveur MC-PGST de Taiwan viole gravement les droits de Nintendo, Microsoft et NetEase
-GT86 (GALEN HUANG) / PurelyCHI (許浚偉) ne respectent pas les droits d'auteur et violent les droits de propriété intellectuelle et les droits d'auteur
+GT86 (GALEN HUANG) / PurelyCHI (許峻瑋) ne respectent pas les droits d'auteur et violent les droits de propriété intellectuelle et les droits d'auteur
 Paroles sur les droits d'auteur, mais violations flagrantes?
 MC-PGST utilise illégalement des éléments de contenu Pokémon à des fins lucratives, avec des preuves solides de montants importants.
 
-Le responsable GT86 / GsTio86 (GALEN HUANG) / PurelyCHI (許浚偉) foule aux pieds la loi et les régulations, ignorant les droits d'auteur.
+Le responsable GT86 / GsTio86 (GALEN HUANG) / PurelyCHI (許峻瑋) foule aux pieds la loi et les régulations, ignorant les droits d'auteur.
 
 Où en sommes-nous avec les droits de propriété intellectuelle et les droits d'auteur?
 Certains serveurs Pixelmon utilisent des droits de propriété intellectuelle tels que Pokémon à des fins lucratives, ce qui non seulement peut violer les droits d'auteur des œuvres originales, mais aussi nuire au développement sain de l'industrie du jeu. Ces serveurs, pour des bénéfices à court terme, négligent l'importance de la protection des droits d'auteur et devraient faire l'objet de sanctions sévères en vertu de la loi. Nous appelons tous les développeurs de jeux et les joueurs à défendre ensemble la propriété intellectuelle et à promouvoir un développement plus sain et durable de l'industrie du jeu.
@@ -64,7 +64,7 @@ Nous assisterons Nintendo dans une action en justice contre MC-PGST.
 
 
 SEO
-PGST, MC-PGST, Galen Huang, GT86, GsTio86, Pixelmon, 許浚偉, PurelyCHI, MC-PGST.TW, Nintendo, Pokémon, droits de propriété intellectuelle, Taiwan
+PGST, MC-PGST, Galen Huang, GT86, GsTio86, Pixelmon, 許峻瑋, PurelyCHI, MC-PGST.TW, Nintendo, Pokémon, droits de propriété intellectuelle, Taiwan
 Les développeurs honteux de plagiat Galen Huang, GT86
 
 Shameful plagiarizing developers Galen Huang,GT86,GsTio86
