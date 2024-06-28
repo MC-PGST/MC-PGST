@@ -1,4 +1,4 @@
-
+https://mc-pgst.com/
 Shameful plagiarizing developers Galen Huang,GT86,GsTio86
 來自台灣的 MC-PGST 伺服器嚴重侵犯任天堂與微軟與網易公司
 GT86(GALEN HUANG)/PurelyCHI(許浚偉)不尊重著作權侵犯知識產權與版權
